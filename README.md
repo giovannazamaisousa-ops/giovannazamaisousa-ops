@@ -1,6 +1,8 @@
 oii, bem vindoo
 (❁´◡`❁)💗
 
+aqui amamos gatos😻
+
 ![](https://media.tenor.com/5jrJ74j_INgAAAAj/dose-dosecat.gif)
 
 
