@@ -8,4 +8,4 @@ oii, bem vindoo
 (❤ ω ❤)
 ![](https://media.tenor.com/mamsHmsqvdIAAAAi/elgatitolover-elgatito.gif)  💗![](https://media.tenor.com/g485TTq4thoAAAAi/cat-cat-dance.gif) ![](https://media1.tenor.com/m/IvMj_IDQHzoAAAAd/kenjou-cat.gif) 💙![](https://media.tenor.com/A3_9kyQCDPcAAAAi/trmpet-rata.gif)
 
-💖✨✨✨![](https://media.tenor.com/abdvZmOX64QAAAAi/cat-cat-meme.gif) (￣o￣) . z Z ![](https://media.tenor.com/U6IiiLabxkcAAAAi/cat-meme.gif)😻😻
+💖✨✨✨![](https://media.tenor.com/abdvZmOX64QAAAAi/cat-cat-meme.gif) (￣o￣) . z Z ![](https://media.tenor.com/U6IiiLabxkcAAAAi/cat-meme.gif)😻😻 1[](https://media1.tenor.com/m/vLTc6y0NkBcAAAAd/vegeta-dbz.gif)
